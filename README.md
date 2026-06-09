@@ -1,0 +1,1 @@
+# A-Hybrid-AI-and-Geospatial-framework-for-smart-Disaster-Management-Prediction
